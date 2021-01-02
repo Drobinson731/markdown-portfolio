@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I love to **learn** about *new and exciting things* sometimes they can be really random and I find myself going down a :rabbit: hole
